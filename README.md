@@ -4,4 +4,4 @@ atualmente eu estudo na escola Sesi de Osvaldo Cruz, onde faço o curso do Senai
 Porém moro em Rinópolis interior de São Paulo, nos dias que não fico no Senai eu trabalho na empresa da minha família,
 gosto de ler e de esportes, bom é isso!!
 
-<img loading="lazy">
+
